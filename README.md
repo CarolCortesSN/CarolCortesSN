@@ -4,7 +4,7 @@
 - 📫 Voce pode me encontrar nesses canais: 
 - 📲 Instagram: _carolinecortes
 - 📲 Email: carolinecortes3434@gmail.com
-- 📲 Linkedin: Caroline Corte
+- 📲 Linkedin: Caroline Cortes
 - ⚡ Fun fact: gosto de criar conteudos de lifestyle na minhas redes sociais 
 
 
